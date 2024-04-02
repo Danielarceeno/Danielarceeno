@@ -1,5 +1,5 @@
 # 💫 About Me:
-📚 Atualmente estudando<br>🛠️ Desenvolvendo pequenos projetos<br>🌟 Sempre em busca de algo novo
+📚 Currently studying<br>🛠️ Developing small projects<br>🌟 Always looking for something new
 
 
 ## 🌐 Socials:
